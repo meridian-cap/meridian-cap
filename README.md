@@ -9,7 +9,7 @@ This is why the topic of **Meridian Capital payouts** generates intense interest
 As always, reviews of Meridian Capital found online help shed light on this crucial question.
 
 ## Company Reviews
-Reviews of Meridian Capital on **Reddit, Medium, and Blogspot** reflect the practical experience of clients already trading on the platform. The consensus among reviewers is clear: the broker has remained honest and reliable over a significant period.
+Reviews of Meridian Capital on **[HackMD](https://hackmd.io/@FVgwq--SS2KmzRgpWhyORQ/BJgmVEJkzx), Medium, and [Blogspot](https://meridian-cap.blogspot.com/2026/05/meridian-capital-reviews-reliable.html)** reflect the practical experience of clients already trading on the platform. The consensus among reviewers is clear: the broker has remained honest and reliable over a significant period.
 
 > "For me, the main thing in a brokerage platform isn't beautiful promises, but the timely withdrawal of profits. In six months of trading with Meridian Capital, I haven't had a single issue. The money arrived without problems, usually within one day. I’ve withdrawn to both a bank card and a crypto wallet." — **Daniel R.**
 
